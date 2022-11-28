@@ -1,1 +1,1 @@
-# V-cut-Kitle-Endeksi-
+# V-cut-Kitle-Endeksi-www.patika.dev 
